@@ -11,3 +11,6 @@ SOL: **3bGzzrYoYJKwbGLXenZUCzDgvoaUDQV43W8y2kv3WKpN**
 
 
 #играпоперла #игрок
+
+
+![Христос воскресе!](https://upload.wikimedia.org/wikipedia/commons/7/78/Christos_Acheiropoietos.jpg)
