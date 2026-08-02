@@ -1,4 +1,5 @@
-## Here you are, donate and you will live longer.
+## Trying to work hard daily
+## Shout out my homies, #free143
 
 LTC: **ltc1q2gzxc4dtgku655l52qlx895a5d4360urrrkzs3**
 
