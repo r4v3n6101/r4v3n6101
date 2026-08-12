@@ -10,6 +10,6 @@ SOL: **3bGzzrYoYJKwbGLXenZUCzDgvoaUDQV43W8y2kv3WKpN**
 
 #играпоперла #игрок #free143
 
-## Our struggle is not against flesh and blood, but against the rulers, against the authorities, against the powers of this dark world and against the spiritual forces of evil in the heavenly realms ##
+## «Our struggle is not against flesh and blood, but against the rulers, against the authorities, against the powers of this dark world and against the spiritual forces of evil in the heavenly realms» ##
 
-![Христос воскресе!](https://upload.wikimedia.org/wikipedia/commons/7/78/Christos_Acheiropoietos.jpg)
+![Да святится имя Твоё!](https://upload.wikimedia.org/wikipedia/commons/7/78/Christos_Acheiropoietos.jpg)
