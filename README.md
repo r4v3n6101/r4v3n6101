@@ -1,5 +1,3 @@
-## Trying to work hard daily; shout out my homies, #free143
-
 LTC: **ltc1q2gzxc4dtgku655l52qlx895a5d4360urrrkzs3**
 
 BNB: **0x13b63A8a519854122d00fbEaC09881503dd77f08**
@@ -10,7 +8,7 @@ SOL: **3bGzzrYoYJKwbGLXenZUCzDgvoaUDQV43W8y2kv3WKpN**
 [![swag zone](https://img.shields.io/badge/swag-here-313131?style=flat&labelColor=545454&color=13131)](https://youtu.be/WbC6711nAhA)
 
 
-#играпоперла #игрок
+#играпоперла #игрок #free143
 
 ## Our struggle is not against flesh and blood, but against the rulers, against the authorities, against the powers of this dark world and against the spiritual forces of evil in the heavenly realms ##
 
